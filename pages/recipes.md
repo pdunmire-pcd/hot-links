@@ -15,6 +15,12 @@ A great easy vegetarian recipe that's a real crowd-pleaser!
 
 An easy recipe to make delicious Potato Puncakes, Draniki!
 
+## [Fish Tacos](https://www.delish.com/cooking/recipe-ideas/a53296/easy-fish-taco-recipe/)
+[Archived Link](https://web.archive.org/web/20260203002221/https://www.delish.com/cooking/recipe-ideas/a53296/easy-fish-taco-recipe/)
+
+A fresh, flavorful fish taco recipe with seasoned fish and bright toppings wrapped in warm tortillas.
+
+
 ## [Mississippi Mud Brownies](https://tastesbetterfromscratch.com/mississippi-mud-brownies/)
 [Archived Link](https://web.archive.org/web/20240227143637/https://tastesbetterfromscratch.com/mississippi-mud-brownies/)
 
