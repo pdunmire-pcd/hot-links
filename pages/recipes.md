@@ -19,8 +19,3 @@ An easy recipe to make delicious Potato Puncakes, Draniki!
 [Archived Link](https://web.archive.org/web/20240227143637/https://tastesbetterfromscratch.com/mississippi-mud-brownies/)
 
 My grandmas mississippi mud recipe is a lot different. This one has marshmallows?
-
-## [Sourdough Brownies](https://www.tasteofhome.com/recipes/sourdough-brownies/)
-[Archived Link](https://web.archive.org/web/20260303195600/https://www.tasteofhome.com/recipes/sourdough-brownies/#RecipeCard)
-
-A rich, fudgy brownie recipe that uses sourdough discard for extra depth of flavor.
